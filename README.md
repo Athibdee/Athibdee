@@ -1,7 +1,6 @@
 ![evzo_m01](https://user-images.githubusercontent.com/109753614/198899143-7a67f428-3205-42fc-8edb-db4cfe31b26a.jpg)
 
-
-Genshin impact player and Computer Engineering Student (CpreE.) who want to be Dev.
+#Genshin impact player and Computer Engineering Student (CpreE.) who want to be Dev.
 
 💻 My Social
 
